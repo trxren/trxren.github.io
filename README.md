@@ -1,2 +1,1 @@
-# trxren.github.io
-hgfds
+welcome to Thanula Ranaweera official website
