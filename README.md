@@ -1,1 +1,1 @@
-welcome to Thanula Ranaweera official website
+welcome to my website
